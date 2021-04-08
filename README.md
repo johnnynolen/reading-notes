@@ -27,9 +27,8 @@ Syntax highlighted code block
 ```
 
 
+#Growth Mindset
 
-
-
-this is a test
 
 # test
+
