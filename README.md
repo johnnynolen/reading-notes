@@ -29,6 +29,5 @@ Syntax highlighted code block
 
 # Growth Mindset
 
-
-# test
+I think growth mindset is taaking on challenges without having a predicitive outcome and without knowing how the course will go. Having an open-mind and being able to keep pushing forward in the face of adversity, one foot in front of the other. This is easier said than done. Challeneges will come and overcoming our ~doubt~, howver, remembering that the end goal isn't the only prize, but what we learn on that journey and how we take that with us.
 
