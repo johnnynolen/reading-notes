@@ -33,5 +33,5 @@ I think growth mindset is taking on challenges without having a predicitive outc
 
 ## Reminders
 
-1. Be *your* own hero; 30, 60, 90 days, months, year, etc. Working throuhg obstacles as they come and conintuing to push forward will have a more benefical outcome even in the short term
+1. Be *your*, own hero; 30, 60, 90 days, months, year, etc. Working throuhg obstacles as they come and conintuing to push forward will have a more benefical outcome even in the short term
 
