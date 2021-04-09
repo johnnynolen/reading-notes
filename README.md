@@ -37,3 +37,5 @@ I think growth mindset is taking on challenges without having a predicitive outc
 2.  Learning anything new can be hard at first, understanding the basics and building ontop of those fundamentals can start increase your learning and understanding.
 - **Crawl**, **Walk**, **Run**
 
+3. Dont be afgraid of criticism and other progression compared to your own. Learning isn't a race. Use those negative thoughts and embrace the fact that if other people are learning it then you can as well.
+  - What one man can do, another man can do.
