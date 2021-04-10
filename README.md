@@ -39,3 +39,6 @@ I think growth mindset is taking on challenges without having a predicitive outc
 
 3. Dont be afgraid of criticism and other progression compared to your own. Learning isn't a race. Use those negative thoughts and embrace the fact that if other people are learning it then you can as well.
   - What one man can do, another can do.
+
+
+#TEST
