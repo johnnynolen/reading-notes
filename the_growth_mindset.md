@@ -4,7 +4,7 @@ I think growth mindset is taking on challenges without having a predicitive outc
 
 ## Reminders
 
-1. Be *your*, own hero; 30, 60, 90 days, months, year, etc. Working throuhg obstacles as they come and conintuing to push forward will have a more benefical outcome 30 days of consistently builds momentum to turn it into 60 days, 120 days, and so on. 
+1. Be *_your_*, own hero; 30, 60, 90 days, months, year, etc. Working throuhg obstacles as they come and conintuing to push forward will have a more benefical outcome 30 days of consistently builds momentum to turn it into 60 days, 120 days, and so on. 
 2.  Learning anything new can be hard at first, understanding the basics and building ontop of those fundamentals can start increase your learning and understanding.
 - **Crawl**, **Walk**, **Run**
 
